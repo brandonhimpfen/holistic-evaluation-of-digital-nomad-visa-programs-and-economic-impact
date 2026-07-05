@@ -1,1 +1,1 @@
-# holistic-evaluation-of-digital-nomad-visa-programs-and-economic-impact
+# Holistic Evaluation of Digital Nomad Visa Programs and Economic Impact 
